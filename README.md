@@ -1,1 +1,0 @@
-Realidade-Aumenta-projeto-NCA
